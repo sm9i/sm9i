@@ -5,7 +5,7 @@
 * 🌱 I’m learning Flutter, Android Native, Python, etc.
 * 🚀 I'm very inactive on GitHub so that don't go online once a few months.
 * 🤝 I'm a member for some organizations, such as [Communist Youth League](http://www.ccyl.org.cn/), etc.
-* 📫 How to reach me: ha.. wait.Why did you contact me？You don't want to sleep with me, do you?
+* 📫 How to reach me: ha.. call me: [Q32BG78O8JH21F54Q87J41N2C69I3S1D17U9843FGSA6651DX]
 * loading....
 ----------------------
 
